@@ -1,4 +1,5 @@
-## Hi there 👋 My Name Is S
+## Hello Guy! Welcome to my Channel ImNOtSlasher69
+
 
 <!--
 **ImNotSlasher/ImNotSlasher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
